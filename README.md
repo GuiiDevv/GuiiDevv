@@ -1,4 +1,4 @@
-# 👨🏽‍💻 Guilherme Cavalcante
+# Guilherme Cavalcante
 
 Me chamo Guilherme Cavalcante de Oliveira, tenho 24 anos e sou natural de Boa vista-rr.
 Conclui ensino médio no Colegio Liderança em SB-PB. Atualmente, estou
